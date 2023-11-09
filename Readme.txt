@@ -1,4 +1,3 @@
-Thanks for downloading this template!
-
-Template Name:-Sammi's Space
+Thanks for downloading this template
+Name:-Sammi's Space
 
